@@ -1,4 +1,4 @@
-# 🇮🇳🇲🇾 Malaysia Global Immersion Programme 2025
+# Malaysia Global Immersion Programme 2025
 
 ## Overview
 
